@@ -28,7 +28,7 @@ Devvy is priced at a one-time fee of \$8,333.33, with an optional payment plan a
 
 While the upfront cost is significant, it's essential to consider the potential long-term returns and the value of a truly automated trading system.
 
-[Join Devvy Now to Unlock Lifetime Access](kelexbawz.com/devvy)
+[Join Devvy Now to Unlock Lifetime Access](https://whop.com/devvy-49?a=kelechienwere1234)
 
 ---
 
@@ -51,7 +51,7 @@ If you fall into any of these categories and have the necessary capital, Devvy c
 * **Community Support:** Engage with a network of like-minded investors for support and insights.
 * **Lifetime Access:** A one-time payment provides ongoing access without recurring fees.
 
-[Join Devvy Now to Start Your Hands-Off Investment Journey](kelexbawz.com/devvy)
+[Join Devvy Now to Start Your Hands-Off Investment Journey](https://whop.com/devvy-49?a=kelechienwere1234)
 
 ---
 
@@ -71,7 +71,7 @@ When evaluating Devvy against other automated trading systems, several factors s
 * **Personalized Onboarding:** The inclusion of an onboarding call ensures users are well-equipped to use the system effectively.
 * **Educational Focus:** Devvy provides resources to help users understand the trading process, which may not be standard with other systems.
 
-[Join Devvy Now to Experience a Unique Automated Trading Solution](kelexbawz.com/devvy)
+[Join Devvy Now to Experience a Unique Automated Trading Solution](https://whop.com/devvy-49?a=kelechienwere1234)
 
 ---
 
@@ -87,7 +87,7 @@ Devvy presents a compelling option for investors seeking a hands-off, automated 
 
 However, the lack of public reviews and the inherent risks of crypto trading mean that potential users should conduct thorough due diligence before committing.
 
-[Join Devvy Now to Take Control of Your Crypto Investments](kelexbawz.com/devvy)
+[Join Devvy Now to Take Control of Your Crypto Investments](https://whop.com/devvy-49?a=kelechienwere1234)
 
 ---
 
